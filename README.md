@@ -5,4 +5,5 @@
 ## Подробную информацию смотрите на сайте:
 [VK](https://vk.com/kirill.morozoff)
 
-![image-10-07-23-08-36](https://github.com/mKirja/www/assets/138771371/c36c73b4-3212-4eaf-b142-6d5790620427)
+![image-10-07-23-08-36](https://github.com/mKirja/www/assets/138771371/169b92bd-63ce-4318-8e28-efbab79c5b5a)
+
